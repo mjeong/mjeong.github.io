@@ -1,3 +1,3 @@
 ## Welcome to My Page
 Most of this is still under construction.
-Meanwhile, there is nothing here but this :-)
+Meanwhile, you can check me out at other links through this page: https://about.me/kevjeong :-)
